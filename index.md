@@ -10,7 +10,7 @@ For any queries write to us at iklylelearning@gmail.com
 
 ### Giveaway your used books
 
-Support in education by odnating your used books. 
+Support in education by donating your used books. 
 
 
 
